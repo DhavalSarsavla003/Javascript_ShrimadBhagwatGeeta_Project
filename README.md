@@ -64,4 +64,7 @@ Dark theme design with golden highlights
 📸 Picture Of Shrimad Bhagwat Geeta UI
 
 ![Screenshot_19-11-2025_134925_127 0 0 1](https://github.com/user-attachments/assets/3149f11e-8d8c-42cb-a6a3-fac5b53b16a2)
+
+All Slok And Verses ✨
+
 ![Screenshot_19-11-2025_134949_127 0 0 1](https://github.com/user-attachments/assets/de0027a1-0790-4d4b-8362-ad1e0da31367)
